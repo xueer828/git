@@ -1,2 +1,3 @@
 ok, I think i will make it.
-Trust me!
+Trust yourself!
+You are the best one.
